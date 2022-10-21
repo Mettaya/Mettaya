@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mettaya :)
+- 👋 Hi, I’m @Mettaya and my long name is Mettaya Puspanabiy :)
 - 👀 I’m interested in Coding, sometimes many things 
 - 🌱 I’m currently learning language and others 
 - 💞️ I’m looking to collaborate on anyone 

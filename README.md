@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning language and others 
 - 💞️ I’m looking to collaborate on anyone 
 - 📫 How to reach me, you can DM me 
--📍am from Indonesia
+
+•📍am from Indonesia
 
 
 <!---

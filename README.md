@@ -8,8 +8,8 @@
     • am girl, 14 y.o
 
 
-Hello, happy holiday! Merry Christmas and happy holiday. 
-Can't wait to wait 2023 year, some day into new year! 
+Hello, happy holiday! Merry Christmas and happy new year 2023! 
+Can't wait to wait 2023 year, count down to begins chapter in 2023
 Wishing you many blessings and happiness, strength, peace to fight together 
 Through storm with ups and downs. 
 

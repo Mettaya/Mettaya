@@ -5,7 +5,7 @@
 - 📫 How to reach me, you can DM me 
 
     •📍And am from Indonesia 
-    • am girl, 14 y.o
+    • am girl, 15 y.o
 
 
 Hello, happy holiday! Merry Christmas and happy new year 2023! 
